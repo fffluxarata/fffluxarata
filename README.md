@@ -15,7 +15,7 @@ src="https://github.com/user-attachments/assets/edddd194-bc15-46cb-a963-ceca9c80
 
 
 
-<img width="20" height="20"  alt="tumblr_6e5be9f909178e75cd81800a8c68be5e_176794cf_75" src="https://github.com/user-attachments/assets/dd535539-f363-431a-bb56-04de81d0b1e7" />  ${\textsf{\color{#db6896} ⋆.}}$ ${\textsf{\color{#c93064} ˚}}$ [ata](https://theredmeansiloveyou.atabook//org)${\textsf{\color{#b72b4d} ⁺ }}$[prns](https://pronouns.cc/@therealsquIddo/) ${\textsf{\color{#e9e6d5} ⸝⸝ ◝ ⩊ ◜}}$ [docs](https://docs.google.com/document/d/1KcI7cgzoxUGHaIFz8EWJM9Ge3pikbPKUxvFD5IAEeJg/edit?usp=sharing)<img width="20" height="20" alt="tumblr_d09c6219ac31a58df15da838b58bbd56_6da1df1a_75" src="https://github.com/user-attachments/assets/a56dbce9-ff50-4cab-845a-34e0ea2bf039" /> 
+<img width="20" height="20"  alt="tumblr_6e5be9f909178e75cd81800a8c68be5e_176794cf_75" src="https://github.com/user-attachments/assets/dd535539-f363-431a-bb56-04de81d0b1e7" />  ${\textsf{\color{#db6896} ⋆.}}$ ${\textsf{\color{#c93064} ˚}}$ [ata](https://theredmeansiloveyou.atabook//org)${\textsf{\color{#b72b4d} ⁺ }}$[prns](https://pronouns.cc/@therealsqulddo/) ${\textsf{\color{#e9e6d5} ⸝⸝ ◝ ⩊ ◜}}$ [docs](https://docs.google.com/document/d/1KcI7cgzoxUGHaIFz8EWJM9Ge3pikbPKUxvFD5IAEeJg/edit?usp=sharing)<img width="20" height="20" alt="tumblr_d09c6219ac31a58df15da838b58bbd56_6da1df1a_75" src="https://github.com/user-attachments/assets/a56dbce9-ff50-4cab-845a-34e0ea2bf039" /> 
 
 <br>
  <img src="https://github.com/user-attachments/assets/a83c16b9-45e6-44fc-8d44-b61c89eba054" width="250" align="center">
