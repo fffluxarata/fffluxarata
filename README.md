@@ -3,7 +3,8 @@
 
 <p align=center>
 <img width="27" height="18" alt="tumblr_77b474909588d92a40ba538b4d41c488_2f70a25f_75" src="https://github.com/user-attachments/assets/680206b4-c8a4-406c-a7ba-773d64396681" />
-   Feel free to rant for as long as youd  like! All submissions are welcome, including confessions, hot takes, boiling-hot takes, warm takes, cold takes, and more! 
+$\color{#ffffb5}{\textsf{Feel free to rant for as long as youd like! All submissions are welcome, including confessions, hot takes, }}\qquad$ $\color{#ceffb5}{\textsf{boiling-hot takes, warm takes, cold takes, and more! }}\qquad$
+
 
 
 
