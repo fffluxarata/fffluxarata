@@ -1,3 +1,4 @@
+<sub>PROBLEMATIC TAKES ARE PROHIBITED.</sub>
 <p align=center>
 <img width="300" alt="welcome" src="https://github.com/user-attachments/assets/8068478e-cc79-418e-842f-2aedb61d0f71" />
 
