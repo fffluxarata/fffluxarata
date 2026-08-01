@@ -22,5 +22,14 @@ Please submit your rants on my Strawpage (or Atabook)! Links are below this text
 ♡ ⸝ ⸝  If you do not understand what an hot take, boiling hot take, warm take, cold take, frozen cold take is.. ill gladly explain!
 
 <p align=center>
- 
-<h1>A WIP</h1>
+<b>BOLING HOT TAKE</b> is a REALLY strong opinion where everyone disagrees and only you agree(?)
+<p align=center>
+<b>HOT TAKE</b> is a strong opinion where very few agree and most will disagree with it
+<p align=center>
+<b>WARM TAKE</b> is something between an hot take and cold take, where half agrees and the other disagrees, think of it as a 50/50!
+<p align=center>
+<b>COLD TAKE</b> is a common opinion where almost everyone agrees, but only a few disagrees with it
+<p align=center>
+<b>FREEZING COLD TAKE</b> is a really common opinion where EVERYONE literally agrees and no one disagrees
+<p align=center>
+hope this helps!
