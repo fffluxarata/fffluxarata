@@ -4,14 +4,15 @@ Feel free to rant for as long as youd  like! All submissions are welcome, includ
 <p align=center>
 Please submit your rants on my Strawpage (or Atabook)! Links are below this text
 <p align="center">
-  <a href="https://example.com">Strawpage</a> •
-  <a href="https://ptrant.atabook.org">Atabook</a>•
+  <a href="https://ptrants.straw.page">Strawpage</a> •
+  <a href="https://ptranting.atabook.org">Atabook</a>
 </p>
+
+
 
 <p align center>
 If you do not understand what an hot take, boiling hot take, warm take, cold take, frozen cold take is.. ill gladly explain!
 
 <p align=center>
  
-<h1>THIS IS A WIP!!!!</h1>
-<h3>do not click on links yet, i am quite busy so i may not finish this.</h3>
+<h1>A WIP</h1>
