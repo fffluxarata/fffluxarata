@@ -11,9 +11,8 @@ $\color{#ffffb5}{\textsf{Feel free to rant for as long as youd like! All submiss
 
 <p align=center>
 <img width="27" height="18" alt="tumblr_77b474909588d92a40ba538b4d41c488_2f70a25f_75" src="https://github.com/user-attachments/assets/680206b4-c8a4-406c-a7ba-773d64396681" />
-Please submit your rants on my Strawpage (or Atabook)! Links are below this text   ִ   ࣪   Ი𐑼
+Please submit your rants on my Atabook! Link is below this text   ִ   ࣪   Ი𐑼
 <p align="center">
-  <a href="https://ptrants.straw.page">Strawpage</a> •
   <a href="https://ptranting.atabook.org">Atabook</a>
 </p>
 
