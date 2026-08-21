@@ -1,3 +1,5 @@
+NOTE : everyone, i may not approve all of your rants very fast lately, since i am quite busy with school and helping my sister with her work. if you see that your rant has yet not been approved then it means i didnt check yet! i hope u understand this. thank you.
+
 <sub>PROBLEMATIC TAKES ARE PROHIBITED.</sub>
 <p align=center>
 <img width="300" alt="welcome" src="https://github.com/user-attachments/assets/8068478e-cc79-418e-842f-2aedb61d0f71" />
